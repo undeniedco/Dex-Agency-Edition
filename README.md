@@ -1,2 +1,2 @@
-# Dex-Agency-Edition
-edited by me.
+# Dex-Agency-Edition 
+this has been discontinued, No point in trying to get it.
